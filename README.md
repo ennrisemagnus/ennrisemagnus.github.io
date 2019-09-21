@@ -1,2 +1,33 @@
 # ennrisemagnus.github.io
-index.hmtl
+index.hmtlPARA SA AKING BINIBINI
+
+Nagsimula tayo gamit ang teknolohiya
+Sa Rpw naman Nagkakilala 
+Itong aking binibini 
+Na aking napili
+
+Mahal isang buwan na tayo
+Isang buwan na may pagtatalo
+Pagtatalong napunta sa suyuan
+Alam kung kinikilig kana dyan
+
+Iyong pagkakilala ko sayo ng una
+Kala ko masungit ka
+Mali pala ako
+Ang sweet pala ng Ennrise nato
+
+Mahal ang masasabi ko lang
+Sana magtagal pa tayo
+Hindi lang buwan
+Kundi taon na pagsasamahan
+
+Pasensya na kung ito lang ang kaya ko
+Ngunit tagos sa puso naman ipaparamdam ko
+Matagal na talaga akung attractive sayo
+Lalo na ang chubby na tulad mo
+
+Chuvs mahal na mahal kita
+Lagi mong tatandaan
+Busy man akung tao
+Ikaw lang nilalaman ng puso ko
+
