@@ -1,7 +1,7 @@
 # ennrisemagnus.github.io 
-PARA SA AKING BINIBINI
+# PARA SA AKING BINIBINI
 1buwan
-To: Ennrise Magnus
+To: # Ennrise Magnus
 
 Nagsimula tayo gamit ang teknolohiya
 Sa Rpw naman Nagkakilala 
