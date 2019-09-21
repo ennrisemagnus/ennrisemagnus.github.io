@@ -1,7 +1,8 @@
 # ennrisemagnus.github.io 
 # PARA SA AKING BINIBINI
-1buwan
-To: # Ennrise Magnus
+(1buwan)
+
+To: Ennrise Magnus
 
 Nagsimula tayo gamit ang teknolohiya
 Sa Rpw naman Nagkakilala 
@@ -31,5 +32,5 @@ Lalo na ang chubby na tulad mo
 Chuvs mahal na mahal kita
 Lagi mong tatandaan
 Busy man akung tao
-Ikaw lang nilalaman ng puso ko
+Ikaw lang nilalaman ng puso ko.
 
