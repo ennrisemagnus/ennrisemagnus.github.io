@@ -1,5 +1,7 @@
-# ennrisemagnus.github.io
-index.hmtlPARA SA AKING BINIBINI
+# ennrisemagnus.github.io 
+PARA SA AKING BINIBINI
+1buwan
+To: Ennrise Magnus
 
 Nagsimula tayo gamit ang teknolohiya
 Sa Rpw naman Nagkakilala 
